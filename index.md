@@ -1,1 +1,3 @@
 # Captain Future - Hexenmeister der Wissenschaft
+
+Captain Future ist der Sohn des genialen Wissenschaftlers Roger Newton. Als seine Eltern von dem überaus bösen Vul Kuolun umgebracht werden, ist Curtis gerade acht Jahre alt. Grag, der Roboter, und Otto, der Android übernehmen mit Simon Wrights Hilfe die Erziehung des jungen Captains. Dieser entschließt sich nach dem Tod seiner Eltern sein Leben in den Dienst des Guten zu stellen. Ihm zur Seite seht auch die hübsche Joan Landor. Zusammen durchqueren sie mit der Comet, ihrem treuen Schiff, Raum und Zeit um Frieden und Gerechtigkeit zu bewahren. 
